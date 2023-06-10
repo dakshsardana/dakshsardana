@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with Projects and DSA.
 - 💬 Ask me about DSA, CP and WebD.
 - 📫 How to reach me: daksh2003sardana@gmail.com
-- ⚡ Fun fact: No Fun Fact...;)
+- ⚡ Fun fact: No Fun Fact....;)
 
 
 
